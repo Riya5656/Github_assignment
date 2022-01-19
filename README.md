@@ -8,7 +8,7 @@
   
 2. Pour a gallon of milk into the bowl.
    
-   Basically, take the same guidance as above:Don't be messy, but if you are, clean it up!
+   Basically, take the same guidance as above: don't be messy, but if you are, clean it up!
     
 3. Rub the salmon vigorously with butter.
 
@@ -20,6 +20,6 @@
   
     Here are some techniques on salmon dropping:
       
-       * Make sure no trout or children is present
+       * Make sure no trout or children are present
        * Use both hands
        * Always have a towel nearby in cases of messes
